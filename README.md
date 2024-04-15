@@ -1,1 +1,1 @@
-https://SanduniRane.github.io/Samsung/
+https://SanduniRane.github.io/Samsung/Home.html
